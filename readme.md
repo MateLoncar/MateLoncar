@@ -5,7 +5,7 @@
 
 - 27yrs old.
 - :house: Split,Croatia
-- :books: Cologne,Germany
+- :books: Bonn,Germany
 -  Talent profile (https://talents.neuefische.de/profile/82075ed6-3583-4bf6-b13a-4c86e061088)
 
 
